@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @toudjib
+- 👀 I’m interested in creating simple and effective applications and uses to popularize blockchain in Africa.
+- 🌱 I’m currently learning How to run blockchain projects with my marketing and entrepreneurial skills. The various benefits of NFTs for artists and artisans can really have a powerful impact in Africa. 
+- 💞️ I’m looking to collaborate on with a team capable of developing robust blockchain-based marketplaces and other projects that will also incorporate easy-to-use interfaces for artisans and customers to ensure rapid adoption.
+- 📫 How to reach me by sending me an email to toudjibtokens@gmail.com
